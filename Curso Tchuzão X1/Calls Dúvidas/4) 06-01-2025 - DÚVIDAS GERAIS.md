@@ -1,0 +1,2 @@
+- https://player-vz-982c3aec-fb6.tv.pandavideo.com.br/embed/?color=ff4376&v=2dfcdadc-be40-4227-a123-ce375bf5a3a4
+- https://docs.google.com/document/d/1Zy8jGULflFzJv_-ZWZeWyAuPpTdqrxk1/edit?rtpof=true&sd=true&_gl=1*zp851t*_ga*NjY4ODM4MTI3LjE3NDY3NTkwNTI.*_ga_37GXT4VGQK*czE3NDY5MzI4NTgkbzYkZzEkdDE3NDY5MzQwMTIkajAkbDAkaDA.&tab=t.0
